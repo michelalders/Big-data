@@ -91,6 +91,8 @@ Computers nemen overigens steeds meer taken van ons over.
 
 Maar... *weten vereist doen*.
 
+!
+
 Nicholos Carr (NRC Handelsblad 8 november 2013):
 
 >Terwijl we ons tot schermwezens omvormen, staan we voor een existentiele vraag: ligt ons wezen nog altijd in wat we weten, of vinden we het wel goed dat we inmiddels worden bepaald door wat we willen?
